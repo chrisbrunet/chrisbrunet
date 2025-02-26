@@ -5,6 +5,4 @@
 🩺 Doctor of Medicine 2028\
 🏐 Ex-Varsity Volleyballer\
 📫 How to reach me:\
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Email: christopher.g.brunet@gmail.com \
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;LinkedIn: [linkedin.com/in/chris-brunet-471180151](https://www.linkedin.com/in/chris-brunet-471180151/) \
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;Personal Website: [chrisbrunet.ca](https://chrisbrunet.ca)
